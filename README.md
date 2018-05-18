@@ -1,3 +1,4 @@
 # ‚¨D‚ÝÄ‚«‚Ìì‚è•û
-‚¨D‚ÝÄ‚«•²E…E—‘‚ð“ü‚ê‚Ü‚·D
+‚¨D‚ÝÄ‚«‚Ì•²E…E—‘‚ð“ü‚ê‚Ü‚·D
 ƒLƒƒƒxƒc‚ð“ü‚ê‚Ü‚·D
+ƒR[ƒ‰‚ð“ü‚ê‚Ü‚·DŽ
