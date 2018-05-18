@@ -1,4 +1,4 @@
-# ‚¨D‚İÄ‚«‚Ìì‚è•û
-‚¨D‚İÄ‚«‚Ì•²E…E—‘‚ğ“ü‚ê‚Ü‚·D
-ƒLƒƒƒxƒc‚ğ“ü‚ê‚Ü‚·D
-ƒR[ƒ‰‚ğ“ü‚ê‚Ü‚·D
+# okonomiyakinotukurikata
+kona, tamago, mizuwoiremasu.
+kyabetuwoiremasu.
+ko-rawoiremasu.
