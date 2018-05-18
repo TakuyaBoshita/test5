@@ -1,6 +1,6 @@
 # okonomiyakinotukurikata
 kona, tamago, mizuwoiremasu.
 kyabetuwoiremasu.
-ko-rawoiremasu.
+karupisuwoiremasu.
 brunchtest.
 simane.
