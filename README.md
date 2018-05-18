@@ -3,3 +3,4 @@ kona, tamago, mizuwoiremasu.
 kyabetuwoiremasu.
 ko-rawoiremasu.
 brunchtest.
+simane.
